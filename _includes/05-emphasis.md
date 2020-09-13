@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I've performed *stand-up comedy* for 4 years before the pandemic. I am a former writer for a YouTube channel with **35 million subscribers**. In 2018, I was a **semi-finalist** for the NC's Funniest Competition at Goodnights Comedy Club in Raleigh, NC. I've opened for **Alex Hooper** and I can be seen playing *Pizza Mike* on Youtube **(55 million views!)**.
